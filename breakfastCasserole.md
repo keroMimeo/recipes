@@ -1,6 +1,8 @@
 ## Prep work ##
 
-Prehead oven to 350 degrees
+* Cube bread
+* Brown sausage
+* Preheat oven to 350 degrees
 
 ## Ingredients ##
 
