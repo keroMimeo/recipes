@@ -1,1 +1,20 @@
-### Recipe collection ###
+# Recipe Title #
+
+## Prep work ##
+
+* 
+*
+*
+
+## Ingredients ##
+
+-
+-
+-
+
+## Directions ##
+
+* 
+* 
+*
+
