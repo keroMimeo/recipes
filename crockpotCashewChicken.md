@@ -2,18 +2,18 @@
 
 ### Ingredients ###
 
-2 pounds skinless boneless thighs or breast tenders
-1/4 cup all purpose flour
-1/2 teaspoon black pepper
-1 tablespoon canola oil
-1/4 cup soy sauce
-2 tablespoons rice wine vinegar
-2 tablespoons ketchup
-1 tablespoon brown sugar
-1 minced garlic clove
-1/2 teaspoon grated fresh ginger
-1/4 teaspoon red pepper flakes
-1/2 cup cashews
+2 pounds skinless boneless thighs or breast tenders  
+1/4 cup all purpose flour  
+1/2 teaspoon black pepper  
+1 tablespoon canola oil  
+1/4 cup soy sauce  
+2 tablespoons rice wine vinegar  
+2 tablespoons ketchup  
+1 tablespoon brown sugar  
+1 minced garlic clove  
+1/2 teaspoon grated fresh ginger  
+1/4 teaspoon red pepper flakes  
+1/2 cup cashews  
 
 ### Directions ###
 
