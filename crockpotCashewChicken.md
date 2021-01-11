@@ -18,7 +18,7 @@
 ### Directions ###
 
 * Combine flour and pepper in large zip loc bag.  
-* Add chicken to bag and shake to coat with flour mixture. 
+* Add chicken to bag. Shake to coat with flour mixture. 
 * Heat oil in skillet over medium-high heat.
 * Brown chicken for about 2 minutes on each side. 
 * Place chicken in slow cooker. 
